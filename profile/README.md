@@ -10,4 +10,4 @@ Terima kasih.
 
 Salam _coding_,
 
-[Ikang Fadhli](ikanx101.com)
+[Ikang Fadhli](https://ikanx101.com)
